@@ -20,6 +20,11 @@
 | আরিফ (জগন্নাথ বিশ্ববিদ্যালয় রেসকিউ টিম ৫ টা মটর বোট নিয়ে সকাল থেকে রেসকিউ করতে রেডি) | ছাগলনাইয়া | 01822310486 | [link](https://www.facebook.com/awaabin.abdin/posts/pfbid02PXM3ycj7eYyA8q4J9Qh8NQvUbNycJNqbTzzbdXapoLn99RFYi7WKf4eb1wD1zCppl)|
 | বাংলাদেশ নেভির একটি কন্টিনজেন্ট ডিপ্লয় করা হয়েছে; যেখানে রেস্কিউ বোট, দক্ষ ডুবুরি দল ও মেডিকেল টিম রয়েছে; তাদের সহায়তা নিতে যোগাযোগ করুন  |  ফেনী | 01769754103, 01769822315, 01722350543 | [comments](https://www.facebook.com/awaabin.abdin/posts/pfbid02PXM3ycj7eYyA8q4J9Qh8NQvUbNycJNqbTzzbdXapoLn99RFYi7WKf4eb1wD1zCppl) |
 | মেজর সানজিদ  (ফেনী সদর থেকে সেনাবাহিনীর উদ্ধারদল ১২টি স্পীড বোট ও হেলিকপ্টার নিয়ে পরশুরাম-ফুলগাজী যাচ্ছে) | পরশুরাম-ফুলগাজী | 01769331213 | [comments](https://www.facebook.com/awaabin.abdin/posts/pfbid02PXM3ycj7eYyA8q4J9Qh8NQvUbNycJNqbTzzbdXapoLn99RFYi7WKf4eb1wD1zCppl) |
+| কনটিজেন্ট কমান্ডার লেফটেন্যান্ট কমান্ডার সাইফুল ইসলাম | ফেনী নৌবাহিনী | ০১৭৬৯৭৫৪১০৩ | [link](https://www.facebook.com/share/p/sXAqSav1fHb1prhc/) |
+| নেভাল কমান্ডো এবং ডাইভিং টিম কমান্ডার লেঃ এম বেলাল হোসেন | ফেনী নৌবাহিনী | ০১৭৬৯৮২২৩১৫ | [link](https://www.facebook.com/share/p/sXAqSav1fHb1prhc/) |
+| বন্যা কবলিত এলাকায় জরুরী চিকিৎসা সহায়তা প্রদান সার্জন লেঃ কমান্ডার মোঃ সালেহ আনজুম | ফেনী নৌবাহিনী | ০১৭২২-৩৫০৫৪৩ | [link](https://www.facebook.com/share/p/sXAqSav1fHb1prhc/) |
+| চট্টগ্রামস্থ কেন্দ্রীয় অপারেশন রুম | নৌবাহিনী | ০১৭৬৯৭২৪১৪০ | [link](https://www.facebook.com/share/p/sXAqSav1fHb1prhc/) |
+
 
 
 # Fund Raising
@@ -27,3 +32,12 @@
 | Name | Contact | FB Post Link |
 |------|---------|--------------|
 | RMEDU Student CLub | 01876218691, 01775117214 | [link](https://www.facebook.com/rmedusc/posts/pfbid02GR5VtYbu3qpdxXPBJcNTLeT8TyezeXXtanLqGwcJrkCT9ZyNJycDmifY32XbqD6Jl)|
+
+
+
+
+
+
+বন্যার্তদের সহায়তায় ফেনীতে নৌবাহিনী কনটিজেন্টের গুরুত্বপূর্ণ ফোন নাম্বার সমূহঃ
+
+#BangladeshNavy #Bangladesh
