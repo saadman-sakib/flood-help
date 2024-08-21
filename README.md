@@ -67,8 +67,12 @@
 | -----| ------- |------------ | ---- |
 | RMEDU Student Club | | বিকাশ - 01876218691 ( Tanvir Ahmed, RME-06 ) নগদ - 01775117214 ( Md Shamsuddin, RME-06 ) | [link](https://www.facebook.com/rmedusc/posts/pfbid02GR5VtYbu3qpdxXPBJcNTLeT8TyezeXXtanLqGwcJrkCT9ZyNJycDmifY32XbqD6Jl) |
 | CSEDU Student Club | | বিকাশ - 01792941694 ( Himel Roy- 27 ), রকেট - 017789566113 ( Md Shariful Islam - 27 ) | [link](https://www.facebook.com/share/p/vGm3wwjkkDQkihjT/)|
+| Economics Study Center, University of Dhaka | | বিকাশ , নগদ : 01868107062  ( হাসিব ), বিকাশ : 01781817732 ( অর্নব  ), বিকাশ, নগদ , রকেট : 01705672525 ( রাজগীর ) | [link](https://www.facebook.com/share/p/iW94zQqQeSEnDNpH/)|
+| Give Bangladesh | | বিকাশ: 01404-111184 (মার্চেন্ট), নগদ: 01779-394909 (মার্চেন্ট)  | [link](https://www.facebook.com/share/p/ah99g9e2pwg6V1wy/)|
+| Friendship Bond | | Bkash/Nagad: 01907715486 (Send Money), Rocket: 019077154865 (Send Money), **Bank Details**: Islami Bank Bangladesh, Motijheel Branch, Account Holder: Jainal Abedin, Account No: 20503110201461308  | [link](https://www.facebook.com/share/p/ah99g9e2pwg6V1wy/)|
+| Prochesta Foundation | | বিকাশ : 01703495967 (Nishat), নগদ : 01797599856 (Abir) ; **Bank Account:** Bank Name: Bank Asia PLC, Youth Prochesta Foundation of Bangladesh, AC No: 069-330-00899, Sat Mosjid Road Branch,Dhanmondi,Dhaka. | [link](https://www.facebook.com/prochesta.desh/posts/pfbid02zqUMfDPNT5nUTUpKLbp78JCxxRS8EAprht3U8fzqoKMocCuCxQMPnqtWD6VswqvFl)|
 | Project তরী, Green Youth Association | 01405341749, 01855039015, 01305305670, 01951196677, 01616033359, 01864955868 | বিকাশ: 01305305670 , 01951196677, নগদ: 01951196677, 01864955868, রকেট: 01951196677 | [link](https://www.facebook.com/share/p/b2G12BLkTUn3Heie/) |
-| As-Sunnah Foundation | | | [link](https://assunnahfoundation.org/donate/flood) |
+| As-Sunnah Foundation | | বিকাশ/নগদ মার্চেন্ট: 01958 277609 (পেমেন্ট অপশন থেকে পাঠাতে হবে।) | [link](https://assunnahfoundation.org/donate/flood) |
 
 
 
