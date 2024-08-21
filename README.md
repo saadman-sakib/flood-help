@@ -67,14 +67,8 @@
 | -----| ------- |------------ | ---- |
 | RMEDU Student Club | | বিকাশ - 01876218691 ( Tanvir Ahmed, RME-06 ) নগদ - 01775117214 ( Md Shamsuddin, RME-06 ) | [link](https://www.facebook.com/rmedusc/posts/pfbid02GR5VtYbu3qpdxXPBJcNTLeT8TyezeXXtanLqGwcJrkCT9ZyNJycDmifY32XbqD6Jl) |
 | CSEDU Student Club | | বিকাশ - 01792941694 ( Himel Roy- 27 ), রকেট - 017789566113 ( Md Shariful Islam - 27 ) | [link](https://www.facebook.com/share/p/vGm3wwjkkDQkihjT/)|
-| Project তরী, Green Youth Association | 01405341749, 01855039015, 01305305670, 01951196677, 01616033359, 01864955868 | বিকাশ: 01305305670 , 01951196677, নগদ: 01951196677, 01864955868, রকেট: 01951196677 | [link](https://www.facebook.com/rmedusc/posts/pfbid02GR5VtYbu3qpdxXPBJcNTLeT8TyezeXXtanLqGwcJrkCT9ZyNJycDmifY32XbqD6Jl) |
+| Project তরী, Green Youth Association | 01405341749, 01855039015, 01305305670, 01951196677, 01616033359, 01864955868 | বিকাশ: 01305305670 , 01951196677, নগদ: 01951196677, 01864955868, রকেট: 01951196677 | [link](https://www.facebook.com/share/p/b2G12BLkTUn3Heie/) |
 | As-Sunnah Foundation | | | [link](https://assunnahfoundation.org/donate/flood) |
 
 
 
-
-
-
-বন্যার্তদের সহায়তায় ফেনীতে নৌবাহিনী কনটিজেন্টের গুরুত্বপূর্ণ ফোন নাম্বার সমূহঃ
-
-#BangladeshNavy #Bangladesh
