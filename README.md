@@ -17,6 +17,8 @@
 
 | Name | Location | Contact | FB Post Link |
 |------|----------|---------|--------------|
+| সোহাগ | ফেনী |  01814720758 | [link](https://www.facebook.com/share/p/jbVCeFgmH3HQBNG5/) |
+| সাজ্জাদ | ফেনী | 01875810789  | [link](https://www.facebook.com/share/p/jbVCeFgmH3HQBNG5/)  | 
 | আরিফ (জগন্নাথ বিশ্ববিদ্যালয় রেসকিউ টিম ৫ টা মটর বোট নিয়ে সকাল থেকে রেসকিউ করতে রেডি) | ছাগলনাইয়া | 01822310486 | [link](https://www.facebook.com/awaabin.abdin/posts/pfbid02PXM3ycj7eYyA8q4J9Qh8NQvUbNycJNqbTzzbdXapoLn99RFYi7WKf4eb1wD1zCppl)|
 | মেজর সানজিদ  (ফেনী সদর থেকে সেনাবাহিনীর উদ্ধারদল ১২টি স্পীড বোট ও হেলিকপ্টার নিয়ে পরশুরাম-ফুলগাজী যাচ্ছে) | পরশুরাম-ফুলগাজী | 01769331213 | [comments](https://www.facebook.com/awaabin.abdin/posts/pfbid02PXM3ycj7eYyA8q4J9Qh8NQvUbNycJNqbTzzbdXapoLn99RFYi7WKf4eb1wD1zCppl) |
 | কনটিজেন্ট কমান্ডার লেফটেন্যান্ট কমান্ডার সাইফুল ইসলাম | ফেনী নৌবাহিনী | ০১৭৬৯৭৫৪১০৩ | [link](https://www.facebook.com/share/p/sXAqSav1fHb1prhc/) |
