@@ -23,6 +23,39 @@
 | নেভাল কমান্ডো এবং ডাইভিং টিম কমান্ডার লেঃ এম বেলাল হোসেন | ফেনী নৌবাহিনী | ০১৭৬৯৮২২৩১৫ | [link](https://www.facebook.com/share/p/sXAqSav1fHb1prhc/) |
 | বন্যা কবলিত এলাকায় জরুরী চিকিৎসা সহায়তা প্রদান সার্জন লেঃ কমান্ডার মোঃ সালেহ আনজুম | ফেনী নৌবাহিনী | ০১৭২২-৩৫০৫৪৩ | [link](https://www.facebook.com/share/p/sXAqSav1fHb1prhc/) |
 | চট্টগ্রামস্থ কেন্দ্রীয় অপারেশন রুম | নৌবাহিনী | ০১৭৬৯৭২৪১৪০ | [link](https://www.facebook.com/share/p/sXAqSav1fHb1prhc/) |
+| UNO  | FULGAZI | 01713186315 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
+| UNO  | PARSHURAM | 01713187316 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
+| UNO  | Chhagalnaiya | 01713187317 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
+| SENABAHINI |  | 01769335461 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
+| Rescue Arfat |  | 01836-889812 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
+| JASHED VAI |  | 01818521000 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
+| JOYNAL VAI |  | 01818746542 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
+| SHOWRAB SHAKIL |  | 01843-720516 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
+| MIZAN |  | 01609430285 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
+| SAIKAT |  | 01831588759 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
+| ছাগলনাইয়া |  | 01644364349, 01615414520, 01319250773 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
+| মোঃ আরাফাত | পরশুরাম | 01836-889812 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
+| মোঃ ফোরকান |  | 01818738984 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
+| আরাফাত হোসেন |  | 01829260044 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
+| নাদের চৌধুরী |  | 01690-028474 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
+| মীর হোসাইন হৃদয় |  | 01875-149204 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
+| মাহেদী হাসান |  | 01766-046785 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
+| জিয়াউর রহমান ফারুকী | ফুলগাজী | 01820746314 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
+| আবদুর রহমান | ফুলগাজী | 01887954818 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
+| আসাদুল ইসলাম | পরশুরাম | 01402933308 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
+| ওমর ফারুক | ছাগলনাইয়া | 01822789872 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
+| মেহেদী হাসান | ছাগলনাইয়া | 01865445795 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
+| চিথলিয়া |  | 01639746448 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
+| Arshad | পরশুরাম | 01612432794 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
+| ফিরোজ |  | 016-342-58115 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
+| আতিক |  | 01882133117 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
+| নজরুল |  | 018494-10128 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
+| রেহান |  | +880 1518-696657 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
+| Rishat |  | ০১৬৩৯৭৪৬৪৪৮ | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
+| Nibir | মুন্সিরহাট | 01823234320, 01644-214463 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
+| কাজী তৌফিক |  | 01518413734 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
+| নাহিদ হায়দার | ফুলগাজী | 01834443459 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
+|  | সাতকুচিয়া | 01632420741, 01833262015 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
 
 
 
