@@ -10,7 +10,10 @@
 
 | Name | Location | Contact | FB Post Link |
 |------|----------|---------|--------------|
-|আরিফ | ছাগলনাইয়া | 01822310486 | [link](https://www.facebook.com/awaabin.abdin/posts/pfbid02PXM3ycj7eYyA8q4J9Qh8NQvUbNycJNqbTzzbdXapoLn99RFYi7WKf4eb1wD1zCppl)|
+| আরিফ | ছাগলনাইয়া | 01822310486 | [link](https://www.facebook.com/awaabin.abdin/posts/pfbid02PXM3ycj7eYyA8q4J9Qh8NQvUbNycJNqbTzzbdXapoLn99RFYi7WKf4eb1wD1zCppl)|
+| বাংলাদেশ নেভির একটি কন্টিনজেন্ট ডিপ্লয় করা হয়েছে |  ফেনী | যেখানে রেস্কিউ বোট, দক্ষ ডুবুরি দল ও মেডিকেল টিম রয়েছে; তাদের সহায়তা নিতে যোগাযোগ করুন | 01769754103, 01769822315, 01722350543 | [comments](https://www.facebook.com/awaabin.abdin/posts/pfbid02PXM3ycj7eYyA8q4J9Qh8NQvUbNycJNqbTzzbdXapoLn99RFYi7WKf4eb1wD1zCppl) |
+| মেজর সানজিদ  (ফেনী সদর থেকে সেনাবাহিনীর উদ্ধারদল ১২টি স্পীড বোট ও হেলিকপ্টার নিয়ে পরশুরাম-ফুলগাজী যাচ্ছে) | পরশুরাম-ফুলগাজী | 01769331213 | [comments](https://www.facebook.com/awaabin.abdin/posts/pfbid02PXM3ycj7eYyA8q4J9Qh8NQvUbNycJNqbTzzbdXapoLn99RFYi7WKf4eb1wD1zCppl) |
+
 
 # Fund Raising
 
