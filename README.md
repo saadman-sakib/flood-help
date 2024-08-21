@@ -1,3 +1,10 @@
+# Free Data, Minutes
+### ১. গ্রামীণফোনে ডায়াল করুন `*121*5050#` ১০ মিনিট ও ৫০০ এমবি ফ্রী দিচ্ছে তারা।
+[শুধুমাত্র ফেনী,নোয়াখালী, কুমিল্লা,ব্রাহ্মণবাড়িয়া, মৌলভীবাজার, খাগড়াছড়ি, হবিগঞ্জের জন্য।]
+### ২. রবি এবং এয়ারটেলে `*২১২*১#` ডায়াল করুন  ২৫০ এমবি ও ২০ মিনিট ফ্রী দিচ্ছে তারা।
+### ৩. বাংলালিংকে `*১২১*৯০০*৩#` ডায়াল করুন  ১০ মিনিট এবং ৫০০ এমবি ফ্রী দিচ্ছে তারা।
+[শুধুমাত্র ফেনী,নোয়াখালী ও কুমিল্লার জন্য]
+
 
 # Affected People
 
@@ -10,7 +17,7 @@
 
 | Name | Location | Contact | FB Post Link |
 |------|----------|---------|--------------|
-| আরিফ | ছাগলনাইয়া | 01822310486 | [link](https://www.facebook.com/awaabin.abdin/posts/pfbid02PXM3ycj7eYyA8q4J9Qh8NQvUbNycJNqbTzzbdXapoLn99RFYi7WKf4eb1wD1zCppl)|
+| আরিফ (জগন্নাথ বিশ্ববিদ্যালয় রেসকিউ টিম ৫ টা মটর বোট নিয়ে সকাল থেকে রেসকিউ করতে রেডি) | ছাগলনাইয়া | 01822310486 | [link](https://www.facebook.com/awaabin.abdin/posts/pfbid02PXM3ycj7eYyA8q4J9Qh8NQvUbNycJNqbTzzbdXapoLn99RFYi7WKf4eb1wD1zCppl)|
 | বাংলাদেশ নেভির একটি কন্টিনজেন্ট ডিপ্লয় করা হয়েছে; যেখানে রেস্কিউ বোট, দক্ষ ডুবুরি দল ও মেডিকেল টিম রয়েছে; তাদের সহায়তা নিতে যোগাযোগ করুন  |  ফেনী | 01769754103, 01769822315, 01722350543 | [comments](https://www.facebook.com/awaabin.abdin/posts/pfbid02PXM3ycj7eYyA8q4J9Qh8NQvUbNycJNqbTzzbdXapoLn99RFYi7WKf4eb1wD1zCppl) |
 | মেজর সানজিদ  (ফেনী সদর থেকে সেনাবাহিনীর উদ্ধারদল ১২টি স্পীড বোট ও হেলিকপ্টার নিয়ে পরশুরাম-ফুলগাজী যাচ্ছে) | পরশুরাম-ফুলগাজী | 01769331213 | [comments](https://www.facebook.com/awaabin.abdin/posts/pfbid02PXM3ycj7eYyA8q4J9Qh8NQvUbNycJNqbTzzbdXapoLn99RFYi7WKf4eb1wD1zCppl) |
 
