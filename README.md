@@ -58,7 +58,23 @@
 | কাজী তৌফিক |  | 01518413734 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
 | নাহিদ হায়দার | ফুলগাজী | 01834443459 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
 |  | সাতকুচিয়া | 01632420741, 01833262015 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
-
+| দেলোয়ার | কুমিল্লা | 8801835346094 | [link](https://www.facebook.com/share/p/d8GQx1JUBootXvww/) |
+|  আবদুল্লাহ আল নোমান | কুমিল্লা | 01307886773 | [link](https://www.facebook.com/share/p/d8GQx1JUBootXvww/) |
+|  নাদিম | কুমিল্লা | 01911063941 | [link](https://www.facebook.com/share/p/d8GQx1JUBootXvww/) |
+|  মো: রাহীম | কুমিল্লা | 01879543732 | [link](https://www.facebook.com/share/p/d8GQx1JUBootXvww/) |
+| মো:এমরান | কুমিল্লা | 01993194505 | [link](https://www.facebook.com/share/p/d8GQx1JUBootXvww/) |
+| আরাফ ভূইয়া | কুমিল্লা | 01849655026 | [link](https://www.facebook.com/share/p/d8GQx1JUBootXvww/) |
+| তরিকুল হক | কুমিল্লা | ০১৭০৬৯৮৪৩৪৯ | [link](https://www.facebook.com/share/p/d8GQx1JUBootXvww/) |
+|  মোশারফ হোসেন | কুমিল্লা | ০১৭৩০৮৯৭০৫৮ | [link](https://www.facebook.com/share/p/d8GQx1JUBootXvww/) |
+|  নাজিম | কুমিল্লা | ০১৮২৩১৫৬৮০৪ | [link](https://www.facebook.com/share/p/d8GQx1JUBootXvww/) |
+| মুনতাসির | কুমিল্লা | 01646247500 | [link](https://www.facebook.com/share/p/d8GQx1JUBootXvww/) |
+|  জিল্লুর | কুমিল্লা | 01865201794 | [link](https://www.facebook.com/share/p/d8GQx1JUBootXvww/) |
+| মারুফ | কুমিল্লা | ০১৮২৯০৭৩৭১৪ | [link](https://www.facebook.com/share/p/d8GQx1JUBootXvww/) |
+| আব্বাস | কুমিল্লা | ০১৮১৮১৫০২৪৯ | [link](https://www.facebook.com/share/p/d8GQx1JUBootXvww/) |
+|  আলামিন | কুমিল্লা | ০১৭১০৪০০৩৪২ | [link](https://www.facebook.com/share/p/d8GQx1JUBootXvww/) |
+| সিফাত | কুমিল্লা | 01620739895 | [link](https://www.facebook.com/share/p/d8GQx1JUBootXvww/) |
+|  তালহা | কুমিল্লা | 8801813615482 | [link](https://www.facebook.com/share/p/d8GQx1JUBootXvww/) |
+|  স্বরুপ | কুমিল্লা | 8801616265066 | [link](https://www.facebook.com/share/p/d8GQx1JUBootXvww/) |
 
 
 # Fund Raising
