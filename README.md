@@ -144,6 +144,5 @@
 | Jhilimili | | Bkash: 01796587832 (Reference: Flood2024); **Bank Details:** K. M. Mashroor Hossain, A/C No. 1063604590001, Brac Bank, Satmasjid Road, **PayPal:** [https://www.paypal.me/hossain93](https://www.paypal.me/hossain93) | [link](https://www.facebook.com/share/p/PGnzWC7g8qEEwxHv/)|
 | Project তরী, Green Youth Association | 01405341749, 01855039015, 01305305670, 01951196677, 01616033359, 01864955868 | বিকাশ: 01305305670 , 01951196677, নগদ: 01951196677, 01864955868, রকেট: 01951196677 | [link](https://www.facebook.com/share/p/b2G12BLkTUn3Heie/) |
 | As-Sunnah Foundation | | বিকাশ/নগদ মার্চেন্ট: 01958 277609 (পেমেন্ট অপশন থেকে পাঠাতে হবে।) | [link](https://assunnahfoundation.org/donate/flood) |
-
-
+| বৈষম্যবিরোধী ছাত্র আন্দোলন | | বিকাশ/নগদ/রকেট মার্চেন্ট নাম্বার : 01886969859+(7forRocket) | [link](https://www.facebook.com/share/p/Dn8DK5BGvWdSNrK1/) |
 
