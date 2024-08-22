@@ -111,6 +111,9 @@
 | ফায়ার সার্ভিসের হটলাইন |  | 102 | [link](https://www.facebook.com/share/p/SXuXHGdVqqij5XAM/) |
 | ফায়ার সার্ভিসের কেন্দ্রীয় নিয়ন্ত্রণ কক্ষ |  | 02223355555 | [link](https://www.facebook.com/share/p/SXuXHGdVqqij5XAM/) |
 | চট্টগ্রাম থেকে বোট ম্যানেজড হয়েছে যতগুলো লাগবে দেওয়া যাবে |  | 01823153858 | [link](https://www.facebook.com/share/p/vLww8yYE9uAxWsQF/) |
+| একটা ট্রলার ম্যানেজ |  চোদ্দগ্রামে এসে পৌঁছেছি | 01305647853 | [link](https://www.facebook.com/share/p/DWC8RjzdioTXLmET/) |
+
+
 
 
 # Fund Raising
