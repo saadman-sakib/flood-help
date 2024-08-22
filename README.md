@@ -7,6 +7,7 @@
 
 
 # Affected People
+## [Google sheet of affected People](https://docs.google.com/spreadsheets/d/1zBv5k1GKFfxNW5GB1X49UmDioD43xpHnB90A-N1SmW0/edit?gid=0#gid=0)
 
 | Location | Contact | FB Post Link | Condition |
 |----------|---------|--------------|-----------|
@@ -112,6 +113,15 @@
 | ফায়ার সার্ভিসের কেন্দ্রীয় নিয়ন্ত্রণ কক্ষ |  | 02223355555 | [link](https://www.facebook.com/share/p/SXuXHGdVqqij5XAM/) |
 | চট্টগ্রাম থেকে বোট ম্যানেজড হয়েছে যতগুলো লাগবে দেওয়া যাবে |  | 01823153858 | [link](https://www.facebook.com/share/p/vLww8yYE9uAxWsQF/) |
 | একটা ট্রলার ম্যানেজ |  চোদ্দগ্রামে এসে পৌঁছেছি | 01305647853 | [link](https://www.facebook.com/share/p/DWC8RjzdioTXLmET/) |
+| Lt Cdr Saiful Islam (C) BCGM | বাংলাদেশ নৌবাহিনী রেস্কিউ টিম ফেনী | 01769754103, 01769762046 |  |
+| Surg Lt Cdr Saleh Anjum | বাংলাদেশ নৌবাহিনী রেস্কিউ টিম ফেনী | 01722350543 |  |
+| Lt Belal | বাংলাদেশ নৌবাহিনী রেস্কিউ টিম ফেনী | 01769822315 |  |
+| Lt Yusuf Fahim | বাংলাদেশ নৌবাহিনী রেস্কিউ টিম ফেনী | 01714897412 |  |
+| Lt Ashikul | বাংলাদেশ নৌবাহিনী রেস্কিউ টিম ফেনী | 01769763528, 01316352060, 01609812408 |  |
+| বাংলাদেশ নৌবাহিনী | Flood Monitoring Cell, চট্টগ্রাম | 01769724420 |  |
+
+
+
 
 
 
