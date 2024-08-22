@@ -75,6 +75,39 @@
 | সিফাত | কুমিল্লা | 01620739895 | [link](https://www.facebook.com/share/p/d8GQx1JUBootXvww/) |
 |  তালহা | কুমিল্লা | 8801813615482 | [link](https://www.facebook.com/share/p/d8GQx1JUBootXvww/) |
 |  স্বরুপ | কুমিল্লা | 8801616265066 | [link](https://www.facebook.com/share/p/d8GQx1JUBootXvww/) |
+| ৪০০ টাকার লাইফ জ্যাকেট ১৫০ |   | ০১৮৮০৬৮২০৯২ | [link](https://www.facebook.com/share/p/BJmfkgWPS4jA3QQW/) |
+| ফেনী পলিটেকনিক ইনস্টিটিউট, শাহিন হোস্টেল ও সাহাব  উদ্দিন হোস্টেল  |  ফেনী | 01897889518 | [link](https://www.facebook.com/share/p/BH2t2FEBrbddET9h/) |
+| আশ্রয়কেন্দ্র ১ | একলাশপুর মাদরাসা, একলাশপুর উচ্চ বিদ্যালয় | 01812355103 | [link](https://www.facebook.com/share/p/SXuXHGdVqqij5XAM/) |
+| আশ্রয়কেন্দ্র ২ | এম এ রশিদ উচ্চ বিদ্যালয়, মাইজদি | 01616-537086, 01609884684 | [link](https://www.facebook.com/share/p/SXuXHGdVqqij5XAM/) |
+| আশ্রয়কেন্দ্র ৩ | নোয়াখালী সরকারি কলেজের নতুন ভবন | 01875418577 | [link](https://www.facebook.com/share/p/SXuXHGdVqqij5XAM/) |
+| আশ্রয়কেন্দ্র ৪ | লক্ষীনারায়ণপুর, মাইজদি,  আদর্শ উচ্চ বিদ্যালয়, আল ফারুক জামে মসজিদ। | 01680943899 | [link](https://www.facebook.com/share/p/SXuXHGdVqqij5XAM/) |
+| আশ্রয়কেন্দ্র ৫ | নোয়ান্নই ইউনিয়ন উচ্চ বিদ্যালয় | প্রধান শিক্ষক(মোজাম্মেল স্যার):- 01831873324, সহকারী প্রধান শিক্ষক(জসীম স্যার):- 01813053711 | [link](https://www.facebook.com/share/p/SXuXHGdVqqij5XAM/) |
+| আশ্রয়কেন্দ্র ৬ | মোহাম্মদপুর রামেন্দ্র মডেল উচ্চ বিদ্যালয়, সেনবাগ | 01956852538 | [link](https://www.facebook.com/share/p/SXuXHGdVqqij5XAM/) |
+| আশ্রয়কেন্দ্র ৬ | চাঁদপুর আদর্শ উচ্চ বিদ্যালয়, সেনবাগ | 01713941594 | [link](https://www.facebook.com/share/p/SXuXHGdVqqij5XAM/) |
+| আশ্রয়কেন্দ্র ৭ | নুরিয়া সরকারি প্রাথমিক বিদ্যালয়ে, ব্রাদার আঁন্দ্রে উচ্চ বিদ্যালয় হয়েছে | জাফর স্যার : 01788404424 | [link](https://www.facebook.com/share/p/SXuXHGdVqqij5XAM/) |
+| আশ্রয়কেন্দ্র ৮ | চৌমুহনী সরকারী এস এ কলেজ, চৌমুহনী |  | [link](https://www.facebook.com/share/p/SXuXHGdVqqij5XAM/) |
+| আশ্রয়কেন্দ্র ৯ | সোনাপুর ডিগ্রি কলেজ, বিজ্ঞান ভবন ১; নুরুল ইসলাম উচ্চ বিদ্যালয়, শরীফপুর | 01820926840, 01881065039 | [link](https://www.facebook.com/share/p/SXuXHGdVqqij5XAM/) |
+| আশ্রয়কেন্দ্র ১০ | জমিদারহাট বিএন উচ্চ বিদ্যালয়, রসুলপুর; আবদুর রশিদ চেয়ারম্যান | 01812988990 | [link](https://www.facebook.com/share/p/SXuXHGdVqqij5XAM/) |
+| আশ্রয়কেন্দ্র ১১ | বেগমগঞ্জ পাইলট উচ্চ বিদ্যালয় | 01816780490 | [link](https://www.facebook.com/share/p/SXuXHGdVqqij5XAM/) |
+| আশ্রয়কেন্দ্র ১২ | পশ্চিম চরউরিয়া সরকারি প্রাথমিক বিদ্যালয়ের (খলিল মিয়ার দরজা) ভবন, ৬ নং নোয়াখালী ইউনিয়নের ৪ নং ওয়ার্ড | 01712327653 (মজিব স্যার) | [link](https://www.facebook.com/share/p/SXuXHGdVqqij5XAM/) |
+| আশ্রয়কেন্দ্র ১২ | সোনাইমুড়ি মডেল উচ্চ বিদ্যালয় | 01778711108, 01835011434, 01902680292, 01754497533 | [link](https://www.facebook.com/share/p/SXuXHGdVqqij5XAM/) |
+| আশ্রয়কেন্দ্র ১৩ | মফিজ উল্যাহ মেমোরিয়াল একাডেমী, মিরওয়ারিশপুর, নরোত্তমপুর |  | [link](https://www.facebook.com/share/p/SXuXHGdVqqij5XAM/) |
+| আশ্রয়কেন্দ্র ১৪ | নোয়াখালী স্কুল, হরিনায়ণপুর স্কুলের পাশে |  | [link](https://www.facebook.com/share/p/SXuXHGdVqqij5XAM/) |
+| আশ্রয়কেন্দ্র ১৫ | ব্রাইট ফিউচার মডেল হাই স্কুল; রাজাপুর সরকারি প্রাথমিক বিদ্যালয়, দূর্গাপুর |  | [link](https://www.facebook.com/share/p/SXuXHGdVqqij5XAM/) |
+| আশ্রয়কেন্দ্র ১৬ | পৌর কল্যাণ উচ্চ বিদ্যালয় | | [link](https://www.facebook.com/share/p/SXuXHGdVqqij5XAM/) |
+| আশ্রয়কেন্দ্র ১৭ | নোয়াখালী ইউনিয়ন হাই স্কুল, মেমের স্কুল বাজারের নাম |  | [link](https://www.facebook.com/share/p/SXuXHGdVqqij5XAM/) |
+| আশ্রয়কেন্দ্র ১৮ | অশ্বদীয়ায় বদরীপুর সরকারি প্রাথমিক বিদ্যালয় |  | [link](https://www.facebook.com/share/p/SXuXHGdVqqij5XAM/) |
+| আশ্রয়কেন্দ্র ১৯ | খাদেমুল সরকারী প্রাথমিক বিদ্যালয়, কাজী কলোনীর সামনে, মাইজদী সদর |  | [link](https://www.facebook.com/share/p/SXuXHGdVqqij5XAM/) |
+| AC Land |  | 01307249392 | [link](https://www.facebook.com/share/p/SXuXHGdVqqij5XAM/) |
+| PIO |  | 01614259627 | [link](https://www.facebook.com/share/p/SXuXHGdVqqij5XAM/) |
+| ফায়ার সার্ভিসের হটলাইন |  | 102 | [link](https://www.facebook.com/share/p/SXuXHGdVqqij5XAM/) |
+| ফায়ার সার্ভিসের কেন্দ্রীয় নিয়ন্ত্রণ কক্ষ |  | 02223355555 | [link](https://www.facebook.com/share/p/SXuXHGdVqqij5XAM/) |
+
+
+
+
+
+
 
 
 # Fund Raising
