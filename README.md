@@ -12,6 +12,14 @@
 |----------|---------|--------------|-----------|
 | জগতপুর, ফেনী |     | [লিঙ্ক](https://www.facebook.com/share/p/T4wijvZv7XQ2BsHd/) | জগতপুরের সব মানুষ মারা যাচ্ছে। ১ তলা পর্যন্ত সম্পূর্ণ পানিতে ভরা। এখন অনেক বিল্ডিং এর ২ তলায় পানি উঠছে। ২ তলার মানুষ কান্নাকাটি করছে। জগতপুরের সব মানুষ শেষ। আর্মি/নৌবাহিনী কিছু নাই। কোনো উদ্ধারকাজ নাই |
 । ছাগলনাইয়া উপজেলার নিজপানুয়া, বাংলাবাজার,শিলুয়া,হরিপুর,পাঠাননগর এর ভিতরে, কাশিপুর, কুহুমা,নিজপানুয়া,মন্দিয়া, শুভপুর | | [link](https://www.facebook.com/share/p/LcwuYbZiy51S4Dkn/) | কোনভাবেই রেস্কিউ মিশন সম্ভব হচ্ছে না। সেচ্ছাসেবক কিংবা ভলেন্টিয়াররাও নিজেদের মধ্যে যোগাযোগও করতে পারছে না। নেটওয়ার্ক ডাউন ইলেক্ট্রিসিটির কারণে। তাই যারা ফেনীতে যাবেন দয়াকরে মোবাইলে পর্যাপ্ত চার্জ এবং পাওয়ার ব্যাংক নিয়ে যাবেন, ইঞ্জিন এর বোট দরকার |
+| সৈয়দর রহমান মুন্সী বাড়ি, পশ্চিম কাশীপুর উত্তরপাড়া জামে মসজিদ, আজিম ভুঁইয়ার খালের বামের রাস্তা ধরে সামনে | | [link](https://www.facebook.com/share/p/vWZygKsi49VUwRAy/) | আমাদের ঘরের দোতলায় ৫-৬ টা পরিবার আছে নিচতলায় হাঁটু পানি। ওখানে কোন উদ্ধার কাজ হচ্ছে না। |
+| মুন্সি বাড়ি, পানুয়া ঘাট মাদ্রাসার পাশে, পূর্ব কাশিপুর | | [link](https://www.facebook.com/share/p/vWZygKsi49VUwRAy/) | পূর্ব কাশিপুর আমার ফুফুরা ৩-৪ টা বাচ্চা হয় আটকা পড়ছে, ওই বাড়ির কেউই সেফপ্লেসে যেতে পারেনি |
+| কাশিপুর, নিজ পানুয়া, পানিয়া ঘাটে | | [link](https://www.facebook.com/share/p/vWZygKsi49VUwRAy/) | শত-শত পরিবার আটকে আছে যাদের রেসকিউ করা জরুরি |
+
+
+
+
+
 
 # Rescue Team
 
@@ -24,7 +32,7 @@
 | কনটিজেন্ট কমান্ডার লেফটেন্যান্ট কমান্ডার সাইফুল ইসলাম | ফেনী নৌবাহিনী | ০১৭৬৯৭৫৪১০৩ | [link](https://www.facebook.com/share/p/sXAqSav1fHb1prhc/) |
 | নেভাল কমান্ডো এবং ডাইভিং টিম কমান্ডার লেঃ এম বেলাল হোসেন | ফেনী নৌবাহিনী | ০১৭৬৯৮২২৩১৫ | [link](https://www.facebook.com/share/p/sXAqSav1fHb1prhc/) |
 | বন্যা কবলিত এলাকায় জরুরী চিকিৎসা সহায়তা প্রদান সার্জন লেঃ কমান্ডার মোঃ সালেহ আনজুম | ফেনী নৌবাহিনী | ০১৭২২-৩৫০৫৪৩ | [link](https://www.facebook.com/share/p/sXAqSav1fHb1prhc/) |
-| চট্টগ্রামস্থ কেন্দ্রীয় অপারেশন রুম | নৌবাহিনী | ০১৭৬৯৭২৪১৪০ | [link](https://www.facebook.com/share/p/sXAqSav1fHb1prhc/) |
+| চট্টগ্রামস্থ কেন্দ্রীয় অপারেশন রুম | নৌবাহিনী | ০১৭৬৯৭২১২২০ | [link](https://www.facebook.com/share/p/sXAqSav1fHb1prhc/) |
 | UNO  | FULGAZI | 01713186315 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
 | UNO  | PARSHURAM | 01713187316 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
 | UNO  | Chhagalnaiya | 01713187317 | [link](https://www.facebook.com/share/p/Kpbo5K79RophcuT3/)|
@@ -102,12 +110,7 @@
 | PIO |  | 01614259627 | [link](https://www.facebook.com/share/p/SXuXHGdVqqij5XAM/) |
 | ফায়ার সার্ভিসের হটলাইন |  | 102 | [link](https://www.facebook.com/share/p/SXuXHGdVqqij5XAM/) |
 | ফায়ার সার্ভিসের কেন্দ্রীয় নিয়ন্ত্রণ কক্ষ |  | 02223355555 | [link](https://www.facebook.com/share/p/SXuXHGdVqqij5XAM/) |
-
-
-
-
-
-
+| চট্টগ্রাম থেকে বোট ম্যানেজড হয়েছে যতগুলো লাগবে দেওয়া যাবে |  | 01823153858 | [link](https://www.facebook.com/share/p/vLww8yYE9uAxWsQF/) |
 
 
 # Fund Raising
