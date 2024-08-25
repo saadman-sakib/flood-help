@@ -144,4 +144,5 @@
 | Project তরী, Green Youth Association | 01405341749, 01855039015, 01305305670, 01951196677, 01616033359, 01864955868 | বিকাশ: 01305305670 , 01951196677, নগদ: 01951196677, 01864955868, রকেট: 01951196677 | [link](https://www.facebook.com/share/p/b2G12BLkTUn3Heie/) |
 | As-Sunnah Foundation | | বিকাশ/নগদ মার্চেন্ট: 01958 277609 (পেমেন্ট অপশন থেকে পাঠাতে হবে।) | [link](https://assunnahfoundation.org/donate/flood) |
 | বৈষম্যবিরোধী ছাত্র আন্দোলন | | বিকাশ/নগদ/রকেট মার্চেন্ট নাম্বার : 01886969859+(7forRocket) | [link](https://www.facebook.com/share/p/Dn8DK5BGvWdSNrK1/) |
+| Uttara Students Society | | **BKash** - 01966531346 (Rakib), 01935164514 (Shawon), **Nagad** - 01966531346 (Rakib), **Rocket** - 01935164514(Shawon) | [link](https://www.facebook.com/share/p/zXedewA3qfB1FKMX/) |
 
